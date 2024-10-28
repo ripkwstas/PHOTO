@@ -1,4 +1,5 @@
-## Hi there 👋
+![HELLO](https://cdn.discordapp.com/attachments/1162059494793162802/1300575255085056172/IMG_2106.jpg?ex=67215698&is=67200518&hm=93c5bf2f89df45592f189c9d0e11dc447b039a4c643cc533e10e586d4b10630f&)
+
 
 <!--
 **ripkwstas/ripkwstas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
