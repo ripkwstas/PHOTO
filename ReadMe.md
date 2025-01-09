@@ -1,1 +1,2 @@
-[![Watch Video]([[https://v1.pinimg.com/videos/mc/720p/ee/e7/44/eee744fe186e6d8a381cc00c7c502abe.jpg)](https://v1.pinimg.com/videos/mc/720p/ee/e7/44/eee744fe186e6d8a381cc00c7c502abe.mp4](https://v1.pinimg.com/videos/mc/720p/ee/e7/44/eee744fe186e6d8a381cc00c7c502abe.mp4)]
+
+![ALL GUCCI](https://cdn.discordapp.com/attachments/1162059494793162802/1327001403801206885/aaa5da19009b0b16b74e7142c07ff502.jpg?ex=678179dd&is=6780285d&hm=2fca85cd37193b335cb4e6f893f69698b9e5b348d585fc7fcac0936665f2f552&)
